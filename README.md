@@ -1,2 +1,6 @@
 # practice_work
-this repository is for practicing GitHub for my test  
+ADEMOLA ADEKOYA DAVID
+[ademolakoya20@gmail.com](mailto: ademolakoya20@gmail.com)
+
+mubaraq
+[github.com/mubarraqqq ] (https://github.com/mubarraqqq)
